@@ -1,0 +1,2 @@
+# 2025GCR12757_GRC205_Ransomware-During-Payroll-Week---Crisis-Communication-Response-Pack
+ RANSOMWARE DURING PAYROLL WEEK - CRISIS COMMUNICATION RESPONSE 
